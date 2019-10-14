@@ -1,2 +1,0 @@
-# shibbir.me
-shibbir.me
